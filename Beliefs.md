@@ -50,7 +50,7 @@
 - Most jobs lost in 2008-present aren't going to come back, new ones have to be created from scratch (or not)
 - In the future, working will be more thoroughly decoupled from having the means to live (see disability trends as proxy for this)
 - Power will be more quickly redistributed when it gets too heavy at the top
-- The concept of money will be no longer needed someday
+- The concept of money will be no longer needed
 
 ## On The Future Of Earth (2100)
 - Global warming is real and will continue to cause big problems
