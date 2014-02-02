@@ -3,6 +3,7 @@
 
 - coriander
 - licorice
+- cake with walnuts
 - vegetable juice (except carrot juice)
 - eggs after breakfast
 - raw tomato (alone)
