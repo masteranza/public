@@ -8,3 +8,4 @@
 - Tesla car
 - Microscope; for bio research
 - Modern electron microscope; for material research 
+- Egg Chair (hanging would be even cooler: http://cdn.opentip.com/Home-Kitchen/Fine-Mod-Imports-Fmi-Egg-Hanging-Chair-p-4029147.html )
