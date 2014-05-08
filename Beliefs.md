@@ -29,6 +29,7 @@
 - We can change our behavior and habits (it requires a lot of energy)
 - Acupuncture works, somehow
 - Vaccinations are good for babies and society
+- You need to recieve from other people and often that requires giving (note a slight variation from other, more dishonest opinions )
 
 ## On Technology
 - Technology will eventually disrupt all other human-created institutions (politics, religion, identity, economics)
