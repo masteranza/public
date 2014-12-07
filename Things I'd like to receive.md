@@ -11,3 +11,4 @@
 - Modern electron microscope; for material research 
 - Egg Chair (hanging would be even cooler: http://cdn.opentip.com/Home-Kitchen/Fine-Mod-Imports-Fmi-Egg-Hanging-Chair-p-4029147.html )
 - Books from Amazon: http://amzn.com/w/SX85ANYIB84W
+- Oculus Rift in the newest version available https://www.oculus.com
