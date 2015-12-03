@@ -1,6 +1,15 @@
 # Things that I'd like to receive
 ### For those who may be interested in getting me a gift
 
+###Everyday stuff
+- nice t-shirt
+	- note: I don't like big logos
+	- I like detailed biological drawings & darwin
+- nice sweeter
+	- lately I'm looking for a brown turtleneck
+- gloves for iphone
+	- http://www.mujjo.com/double-layered-touchscreen-gloves
+
 ####Software
 - Sublime Text 3
 - Daisy disk
@@ -18,6 +27,11 @@
 			- http://www.beoplay.com/products/beoplayearset3
 			- or some good sennheiser headphones
 - Oculus Rift in the official version (not development) https://www.oculus.com
+- air purifier 
+	- important: needs to have a HEPA filter
+	- doesn't need to be big (I have a small room)
+- waterproof my kindle 
+	- http://waterfi.com/waterproof-kindle
 
 ####Really expensive toys
 - Tesla (model X/S) 
