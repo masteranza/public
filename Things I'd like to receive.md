@@ -4,7 +4,7 @@
 ###Everyday stuff
 - nice t-shirt
 	- note: I don't like big logos
-	- I like detailed biological drawings & darwin
+	- I like detailed biological drawings & detailed, non-trivial science writting
 - nice sweeter
 	- lately I'm looking for a brown turtleneck
 - gloves for iphone
