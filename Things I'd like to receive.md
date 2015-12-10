@@ -19,7 +19,7 @@
 
 ####Books (Kindle or classical book)
 - Getting me any of my existing books in Kindle format (science books mostly)
-- any book from Amazon wishlist: https://amzn.com/w/3AHMK80B2S3B8
+- any book from Amazon wishlist: https://amzn.com/w/1JASHMH17R52K
 
 ####Electronics
 - Headphones from Bang&Olufsen: 
