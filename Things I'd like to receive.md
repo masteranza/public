@@ -14,11 +14,7 @@ Things that I'd like to receive
 
 #### Software
 
--   Sublime Text 3
-
 -   Daisy disk
-
--   Day One 2
 
 ### Health
 
@@ -26,21 +22,19 @@ Things that I'd like to receive
 
 #### Books (Kindle or classical book)
 
+-	Any book of Eugene Wigner
+
 -   Getting me any of my existing books in Kindle format (science books mostly)
 
 -   any book from Amazon wishlist: https://amzn.com/w/1JASHMH17R52K
 
 #### Electronics
 
--   Oculus Rift in the official version (not development) https://www.oculus.com
+-   Inter Vaunt prototype glasses
 
--   waterproof my kindle
-
-    -   http://waterfi.com/waterproof-kindle
+-   BOOX Max2 Ereader 13.3" Dual-Touch HD Display, or newer
 
 #### Really expensive toys
-
--   Tesla (model X/S)
 
 -   Modern electron microscope; for material research
 
