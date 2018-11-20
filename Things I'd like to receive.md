@@ -32,8 +32,6 @@ Things that I'd like to receive
 
 -   Inter Vaunt prototype glasses
 
--   BOOX Max2 Ereader 13.3" Dual-Touch HD Display, or newer
-
 #### Really expensive toys
 
 -   Modern electron microscope; for material research
