@@ -9,8 +9,7 @@ Things that I'd like to receive
 
     -   note: I don't like big logos
 
-    -   I like detailed biological drawings & detailed, non-trivial science
-        writting
+    -   I like detailed anatomical/biological drawings, like this https://www.amazon.com/dp/B0769LLGYC/ref=cm_sw_r_pi_dp_U_x_v9mYBbM9SMZ08
 
 #### Software
 
